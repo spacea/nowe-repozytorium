@@ -1,0 +1,1 @@
+# Uczestnicy: Jakub Nowosad
